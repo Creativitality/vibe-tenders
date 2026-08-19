@@ -6,6 +6,12 @@
 
 ---
 
+## In Plain Words
+
+A group of people who genuinely care for each other and want to keep that care intentional. We met at festivals, something rare clicked — everyone lifting each other up, no competition, no ego — and instead of letting it fade when the music stopped, we wrote it down. Vibe Tenders is us being deliberate about that: saying this thing is real, let's protect it. The manifesto is just making it explicit instead of leaving it to chance.
+
+---
+
 ## Preamble
 
 In a world where authentic connection grows rare, we have discovered something extraordinary: a formation of souls that generates its own magnetic field of love, creativity, and abundance. We are the Vibe Tenders — conscious individuals who understand that the highest art is cultivating spaces where everyone can shine, love can multiply, and positive energy becomes a living force that elevates all.
@@ -84,6 +90,8 @@ We have mastered the alchemy of loving without possessing — appreciating beaut
 **The Council Meetings:** Periodic gatherings to discuss group energy, address any concerns, and make decisions about the community.
 
 **The Revelation Game:** A space where each person shares something they have kept hidden — a belief, a fear, a passion held back for fear of not being understood. When one person reveals, they give permission to everyone else. This is where the group becomes real.
+
+**The Wish Ritual:** The group grants someone's wish — whatever form serves them most. Sometimes that means being deeply seen: a circle of genuine words, a surprise, an act of care that says *we know you*. Sometimes it means something absurd and joyful: everyone commits to the funny outfit, the ridiculous request, the bit. The ritual works either way because the act of granting is the point. Joy through service is how the formation expresses love.
 
 ---
 
